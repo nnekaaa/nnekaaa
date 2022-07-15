@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nnekaaa
-- 👀 I’m interested in ui/ux...
-- 🌱 I’m currently learning .ui/ux..
+- 👀 I’m interested in altsch00l
+- 🌱 I’m currently learning software development
 - 💞️ I’m looking to collaborate with people all around the world...
 - 📫 How to reach me ...@nnekaa____ on IG
 
